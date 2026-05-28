@@ -38,6 +38,10 @@ i loveeee the boiled one a lottt !! >w<\
 > dummies vs noobs\
 > hellmet\
 > blocktales\
+> deadcells\
+> hyper light drifter\
+> roblox & minecraft horror + args\
+> guts and blackpowder\
 > roblox in general !\
 feel free to ask for any others\
 
