@@ -42,6 +42,8 @@ i loveeee the boiled one a lottt !! >w<\
 > hyper light drifter\
 > roblox & minecraft horror + args\
 > guts and blackpowder\
+> duckyducktruck / smilelabs\
+> a broken dream\
 > roblox in general !\
 feel free to ask for any others\
 
@@ -61,7 +63,10 @@ sum of my alterz rentrys\
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/318d1a37-c886-40ad-969a-c085f43f219a" />\
 <img width="736" height="981" alt="image" src="https://github.com/user-attachments/assets/a77512a7-7f81-4453-a978-6d5d6b3825ae" />\
 <img width="736" height="552" alt="image" src="https://github.com/user-attachments/assets/ed5706ce-cf5d-4467-a81a-aa6ee5be4e0d" />\
-<img width="720" height="1079" alt="image" src="https://github.com/user-attachments/assets/c4fd9806-5751-49dd-83aa-6cb10fdda3a0" />
+<img width="720" height="1079" alt="image" src="https://github.com/user-attachments/assets/c4fd9806-5751-49dd-83aa-6cb10fdda3a0" />\
+<img width="735" height="703" alt="image" src="https://github.com/user-attachments/assets/512b2a15-ca17-4723-9f0d-3400a4c663d0" />\
+<img width="736" height="882" alt="image" src="https://github.com/user-attachments/assets/34c8c88e-268d-4df8-9e59-f1bfc058f821" />\
+<img width="736" height="882" alt="image" src="https://github.com/user-attachments/assets/ca6288c4-f2fe-4145-8b0e-3c87c6890ec2" />
 
 
 <img width="400" height="30" alt="image" src="https://github.com/user-attachments/assets/11394dc7-811d-44f3-a6b3-96b655d96564" />\
