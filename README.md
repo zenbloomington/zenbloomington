@@ -23,7 +23,7 @@ dont flirt with me ok?
 > husk\
 > ranu\
 > noober\
-> dexter\
+> dexter
 
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/9aa9f3cb-7f3a-4b45-9b9e-22ae3792e5dd" />\
 i loveeee the boiled one a lottt !! >w<\
@@ -53,6 +53,12 @@ sum of my alterz rentrys\
 <img width="735" height="520" alt="image" src="https://github.com/user-attachments/assets/5f464338-a674-4940-af57-50d2a9707567" />\
 <img width="735" height="636" alt="image" src="https://github.com/user-attachments/assets/9cd4d8d9-17b6-467a-99c7-62ae3137ec70" />\
 <img width="1199" height="1050" alt="image" src="https://github.com/user-attachments/assets/c12bb447-ec1b-41b4-bb2f-c5b8c4a77c58" />\
+<img width="736" height="552" alt="image" src="https://github.com/user-attachments/assets/bab826e8-0e71-41a8-b8ea-1c9ac93a8537" />\
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/318d1a37-c886-40ad-969a-c085f43f219a" />\
+<img width="736" height="981" alt="image" src="https://github.com/user-attachments/assets/a77512a7-7f81-4453-a978-6d5d6b3825ae" />\
+<img width="736" height="552" alt="image" src="https://github.com/user-attachments/assets/ed5706ce-cf5d-4467-a81a-aa6ee5be4e0d" />\
+<img width="720" height="1079" alt="image" src="https://github.com/user-attachments/assets/c4fd9806-5751-49dd-83aa-6cb10fdda3a0" />
+
 
 <img width="400" height="30" alt="image" src="https://github.com/user-attachments/assets/11394dc7-811d-44f3-a6b3-96b655d96564" />\
 
