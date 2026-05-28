@@ -23,10 +23,7 @@ dont flirt with me ok?
 > husk\
 > ranu\
 > noober\
-> cryptid\
 > dexter\
-> camy\
-> perriot / lightbulb
 
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/9aa9f3cb-7f3a-4b45-9b9e-22ae3792e5dd" />\
 i loveeee the boiled one a lottt !! >w<\
