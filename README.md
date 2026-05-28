@@ -22,8 +22,7 @@ dont flirt with me ok?
 <img width="32" height="32" alt="image" src="https://github.com/user-attachments/assets/938a1961-5cbe-4fcd-bb70-19be4e37fa93" /> closest oomfies !!! >w<
 > husk\
 > ranu\
-> noober\
-> dexter
+> noober
 
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/9aa9f3cb-7f3a-4b45-9b9e-22ae3792e5dd" />\
 i loveeee the boiled one a lottt !! >w<\
@@ -33,6 +32,7 @@ i loveeee the boiled one a lottt !! >w<\
  <img width="430" height="15" alt="image" src="https://github.com/user-attachments/assets/4e412203-3085-45c6-ab60-ad0286564fb2" />\
 > blood debt\
 > die of death\
+> 17776 / what football will look like in the future\
 > call of duty\
 > phighting\
 > dummies vs noobs\
