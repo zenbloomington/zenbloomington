@@ -52,6 +52,7 @@ feel free to ask for any others\
 <img width="120" height="120" alt="image" src="https://github.com/user-attachments/assets/5aca385e-a46c-4a1d-b0dd-46ad86e54d15" />\
 heavy antisocial tendencies <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/3248cca8-fb79-4d60-a328-e02c1ac2b976" /> doubles dni collectively <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/3248cca8-fb79-4d60-a328-e02c1ac2b976" /> mentally ill individual right here lol <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/3248cca8-fb79-4d60-a328-e02c1ac2b976" /> irl + fictkinnie / kinnie + copinglink\
 **USE TONETAGS.**\
+[guns lol](https://guns.lol/zendoe)\
 sum of my alterz rentrys\
 [null](https://rentry.co/the_BrokenFREAK) . [andrew](https://rentry.co/andrewwww) . [futao and mote](https://rentry.co/FUT3) . [sonk/sunky (mixed source fellow)](https://rentry.co/S0NKY) . [rewrite](https://rentry.co/R3WRIT3COD3)\
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/1d708e40-05c3-4302-8f5d-1dcb62675cff" /> image dump incoming\
