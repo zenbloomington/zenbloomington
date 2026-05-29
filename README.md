@@ -1,7 +1,7 @@
 " If I don’t make it, please find my parents. "\
 ![](https://gifcity.carrd.co/assets/images/gallery78/2135a286.gif?v=3fc8f5cd)
 
-zen *or* aubree\
+zen , **sean *or* aubree**\
 they / meow\
 professional multifandom fellow
 
