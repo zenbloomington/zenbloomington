@@ -7,7 +7,7 @@ professional multifandom fellow
 
 plural.\
 im taken btw dont be weird\
-read [this](https://rentry.co/zenbloomington) rentry for any sort of information about me\
+read [this](https://rentry.co/anarchisticentity) rentry for any sort of information about me\
 (also located on my main, its linked to github so)
 
 [subsys acc numero uno](https://github.com/fallen-roachaserz) . [subsys acc numero dos](https://github.com/ADummysTale)
